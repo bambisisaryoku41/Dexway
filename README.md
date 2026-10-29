@@ -227,4 +227,4 @@ Dexway is offered as a **full free version** with **all features and updates inc
 Start your language learning journey today with the **official Dexway free download**! Unlock your potential and master new languages effortlessly.
 
 ---
-**Last updated:** 2026-10-29 03:59:10 UTC
+**Last updated:** 2026-10-29 10:47:44 UTC
